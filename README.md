@@ -27,6 +27,7 @@ Try ViewBoost and watch your viewership grow! 🎉
 Visit our website and sign up for a free trial to experience the difference with ViewBoost.
 
 ---
-
-**Contact Us**: For support and inquiries, please visit our [website](https://viewboost.pw).
+## Visit Us For More
+[viewboost.pw](https://viewboost.pw)
+**Contact Us**: For support and inquiries, please visit our [DC Channel](https://discord.gg/8mj3H22exR).
 
