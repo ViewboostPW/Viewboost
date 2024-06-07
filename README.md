@@ -7,7 +7,7 @@ With ViewBoost, you can easily generate viewers for your Kick channel. It's supe
 ## Key Features
 - **Easy to Use**: No need to mess with a CLI. Log in to our website, use a user-friendly panel, and customize everything to your liking.
 - **Quick Support**: Got an issue? No worries, we've got quick support ready to help you out.
-- **Free Trial**: Want to give it a spin? Hit us up for a free trial! You can get 3 days for free to check it out.
+- **Free Trial**: Want to give it a spin? Hit us up for a free trial! You can get 1 days for free to check it out.
 
 Try ViewBoost and watch your viewership grow! 🎉
 
