@@ -24,7 +24,7 @@ Try ViewBoost and watch your viewership grow! 🎉
 | 500+                | 1 Month      | Access to User Panel. Boost Your Stream. No Drops. Access to Future Perks. 10x1000 Clip Views | 100 USDT |
 
 ## Get Started Today!
-Visit our website and sign up for a free trial to experience the difference with ViewBoost.
+Join our Discord Channel and Create a Ticket for free trial to experience the difference with ViewBoost.
 
 ---
 ## Visit Us For More
